@@ -2,7 +2,7 @@
 - 👀 I’m interested in content creating😁,video editing😁,coding😆
 - 🌱 I’m currently learning full stack😉
 - 📫 How to reach me : mr.madhanrajaa@gmail.com
-- 😄 Pronouns ------> mandii,madhaneey🤩
+- 😄 Pronouns ------> madhaneey🤩
 - ⚡ Fun fact: loved a chocolate 🍫 called kinder joy😍...
 
 <!---
